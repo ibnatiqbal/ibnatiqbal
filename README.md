@@ -1,3 +1,3 @@
-Hello there.
+Hi there!
 
-computer scioentist from New York
+I'm computer scioentist from New York
