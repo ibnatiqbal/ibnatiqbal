@@ -1,3 +1,3 @@
 Hi there!
 
-I'm computer scioentist from New York
+I'm computer scientist from New York
