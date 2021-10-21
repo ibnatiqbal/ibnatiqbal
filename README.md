@@ -1,3 +1,5 @@
-Hi there!
+Motivated and experienced Java, HTML, CSS, JS programmer. Aspring Product Manager with a technical background and strong cross-functional communications.
 
-Motivated and experienced Java, HTML, CSS, JS programmer. Award-winning hackathon atendee.
+Problem solver. Team leader. Fast learner. Award-winning hackathon atendee.
+
+Please feel free to reach me at ibnatsamihaiqbal@gmail.com
