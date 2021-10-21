@@ -1,3 +1,3 @@
 Hi there!
 
-I'm computer scientist from New York
+Motivated and experienced Java, HTML, CSS, JS programmer. Award-winning hackathon atendee.
