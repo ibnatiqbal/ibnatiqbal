@@ -8,4 +8,4 @@
 💡 Passion for innovation and developing novel products.
 
 
-Please feel free to reach me at ibnatsamihaiqbal@gmail.com
+I love connecting with people. Please feel free to reach me at ibnatsamihaiqbal@gmail.com
